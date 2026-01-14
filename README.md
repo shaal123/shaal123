@@ -1,5 +1,4 @@
-# Shalini-V
-Frontend | Data Analyst | Excel | Power BI | Open to multi-platform roles
+Abount Me
 
 # Hi, I’m **Shalini V** 👋  
 
